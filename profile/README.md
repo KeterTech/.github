@@ -4,6 +4,8 @@ we reverse engineer and provide paid services.
 
 see below for paid services.
 
+join t.me/ketertech
+
 ## VRChat
 
 ### Map hacking
